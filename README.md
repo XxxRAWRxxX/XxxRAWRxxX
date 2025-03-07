@@ -5,11 +5,11 @@
 - 🎈 Pronouns: he/him/his
 - 🍷 Fun fact: I'm trans/gay nd im a therian/scene kid :3
 - 📌 In my free time I write stories and or use ai apps
-- 🌹 I am currently sing and ready to mingle
+- 🌹 I am currently single and ready to mingle
 - 📍 I have trust issues.
 - 🍓 I love making new friends
 - 🎁 My favorite energy drink is Monster Energy
-- 🎒 I FREAKIN LOBE THE COLORS RED ND PINK
+- 🎒 I FREAKIN LOVE THE COLORS RED ND PINK
 <!---
 XxxRAWRxxX/XxxRAWRxxX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
